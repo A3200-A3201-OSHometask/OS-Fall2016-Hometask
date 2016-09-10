@@ -20,7 +20,7 @@
 Опционально: можно добавлять issue. (но опять же заметку я увижу, когда войду в гитхаб. Не ранее).
 
 Мои контактные данные:  
-1) e-mail: grandarchtemplar@gmail.com  
-2) vk: https://vk.com/grandtemplar  
+1) e-mail: grandarchtemplar@gmail.com //тут несколько раз в неделю  
+2) vk: https://vk.com/grandtemplar //тут я каждый (пока не уйду в ~~запой~~ загам) день  
 
 P.S Сделаем наш мир лучше и свободным от долгов!
